@@ -7,6 +7,6 @@
 
 
 ## Developed by
-👩🏻‍💻** Sindhu inti**
+👩🏻‍💻**Sindhu inti**
 
 ## Give me a ⭐
